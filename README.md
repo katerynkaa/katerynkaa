@@ -1,1 +1,1 @@
-kateryna Lozinska, 2 course, stat 1
+Kateryna Lozinska, 2 course, stat 1
